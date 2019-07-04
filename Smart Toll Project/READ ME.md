@@ -10,4 +10,3 @@
 ![image](https://user-images.githubusercontent.com/36043248/60658760-c1a40b00-9e4b-11e9-98ca-3923fa3dfba6.jpg)
 
 
-![Toll-Road-Map](https://user-images.githubusercontent.com/36043248/60658762-c1a40b00-9e4b-11e9-8239-c7e2a658bd21.jpg)
